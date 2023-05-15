@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **lekikhever@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10e59DTFRdVCRv_T3nzVivV3EXXftYkV3/view?usp=drivesdk](https://drive.google.com/file/d/10e59DTFRdVCRv_T3nzVivV3EXXftYkV3/view?usp=drivesdk)
+- 📄 Know about my experiences [(https://drive.google.com/file/d/1RYogVVsHKoUqpCaUJRD6gj8232tVhJEp/view?usp=sharing)](https://drive.google.com/file/d/1RYogVVsHKoUqpCaUJRD6gj8232tVhJEp/view?usp=sharing)
 
 - ⚡ Fun fact **I'm a Mechanical Grad**
 
